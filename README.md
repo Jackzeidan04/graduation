@@ -1,2 +1,2 @@
 GP1 
-Jack zeidan, Mohamad aldani, Ahmad alassaf
+Jack Zeidan, Mohamad Aldani, Ahmad Assaf
